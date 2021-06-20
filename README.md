@@ -1,3 +1,2 @@
-# AHoxha19.github.io
+# AHoxha19.me
 
-## O Clirim ku je 
